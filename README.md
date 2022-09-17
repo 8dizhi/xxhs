@@ -1,17 +1,16 @@
-# 西寻花色_最新地址
-为了避免丢失本站地址，请您将本页CTRL+D保存为浏览器书签！
-#### 地址发布页：https://xdz.51tr.top 请注意,http后面有个s,获取本站最新地址！
+## 西寻花色_最新地址
+![icon](https://github.com/8dizhi/xxhs/blob/main/c-m-x-2.gif)
 --------------------------------------------------------------------------
-#### 海外地址：https://www.5wulang.com
---------------------------------
-#### 最新地址1：https://www.nrtt.top
-#### 最新地址2：https://www.92my.xyz
-#### 最新地址3：https://www.5lang.top
-#### 最新地址4：https://www.nrttav.me
-#### 最新地址5：https://www.55langb.com
-#### 最新地址6：https://www.55langc.com
-#### 最新地址7：https://www.458ys.com
+#### ⭐️ 👉 地址一 ：HttpS://www.oursav.com
+#### ⭐️ 👉 地址二 ：HttpS://www.jjqqbb.com
+#### ⭐️ 👉 地址三 ：HttpS://www.ddyyzz.cc
+#### ⭐️ 👉 地址四 ：HttpS://www.xxmmyy.com
+#### ⭐️ 👉 地址四 ：HttpS://www.ssqqbb.com
+#### ⭐️ 👉 备用导航 ：HttpS://aavvkk.vip
+#### ‼️‼️长按复制到浏览器里面访问以上网址‼️‼️
+#### ‼️請使用Ctrl+D進行收藏本站!|电脑/Ipad/手机在线播放‼️
+
 --------------------------------
 #### 永久地址：https://78cxm.com(需要VPN翻墙)
+### 温馨提示：实在访问不了,请联系邮箱获取最新地址：９２８６９９１@Gmail.com
 
-温馨提示：如果访问不了的用户请一定要在网址前面加上“https”如：https://www.5wulang.com
